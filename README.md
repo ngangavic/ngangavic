@@ -1,4 +1,4 @@
-### Hi there 👋
+### ⚡ Fun fact: I love cartoons
 
 <!--
 **ngangavic/ngangavic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
